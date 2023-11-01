@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **danielnajdrowski@gmail.com**
 
-- 📄 Know about my experiences [https://www.linkedin.com/in/daniel-najdrowski-522004187/](https://www.linkedin.com/in/daniel-najdrowski-522004187/)
+- 📄 Know about my experiences [LinkedIn](https://www.linkedin.com/in/danielnajdrowski/)
 
 - ⚡ Fun fact **I think I am funny**
 
